@@ -1,1 +1,1 @@
-https://datalens.ru/vhh2unnjpfvaf-dashbord
+https://datalens.yandex/vhh2unnjpfvaf
